@@ -2,4 +2,4 @@
 - 👀 I’m interested in : Music, Animes, Drawings, Video Games
 - 🌱 I’m currently learning : Coding, Drawing
 - 💞️ I’m looking to : The perfect girl for me
-- 📫 How to reach me : Not in GitHub but in discord : NuggetDePoulet#2987
+- 📫 How to reach me : Not in GitHub but in discord : nuggetdepoulet
